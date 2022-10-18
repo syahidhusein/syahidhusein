@@ -1,0 +1,10 @@
+- 👋 Hi, I’m @syahidhusein
+- 
+- 👀 I’m a student of Data Science at Dusseldorf University of Applied Sciences
+- 
+- 💞️ I’m looking to participate and collaborate on Machine Learning and AI Projects, Data Analysis and I'm open to other interesting projects.
+- 
+- 
+- 📫 How to reach me?
+- \mail - muhammadsyahid264@gmail.com
+-
