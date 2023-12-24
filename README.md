@@ -7,4 +7,4 @@
 - 
 - 📫 How to reach me?
 - \mail - muhammadsyahid264@gmail.com
-- \LinkedIn - Check out my LinkedIn profile! -> https://www.linkedin.com/in/syahid-husein-9aa492252
+- \LinkedIn - Check out my LinkedIn profile! -> https://www.linkedin.com/in/syahid-husein
